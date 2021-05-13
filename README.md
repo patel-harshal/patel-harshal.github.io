@@ -1,2 +1,2 @@
-# harshalpro224.github.io
+# patel-harshal.github.io
 My portfolio
